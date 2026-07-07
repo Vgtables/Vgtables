@@ -1,4 +1,3 @@
-![Alt Text](https://media1.tenor.com/m/TH3--Xt3MgUAAAAd/ai-chinese-cat-dancing.gif)
 
 
 # <h2>"If kaya nila pagawa mo sa kanila"<h2>
