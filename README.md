@@ -1,4 +1,5 @@
-## https://www.tiktok.com/discover/eggplant-brainrot
+## <img width="206" height="245" alt="images" src="https://github.com/user-attachments/assets/6936bbe2-6521-45b9-9bfd-5f015e09a9a9" />
+
 
 ## 
 <!--
