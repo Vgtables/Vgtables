@@ -1,5 +1,5 @@
 # <h2>"If kaya nila pagawa mo sa kanila"<h2>
-<img width="165" height="293" alt="images (1)" src="https://github.com/user-attachments/assets/5267241c-1ade-48c1-8a57-f92cc1603709" />
+
 # 📊 GitHub Stats:
 ![](https://github-readme-stats.shion.dev/api?username=vgtables&theme=calm_pink&hide_border=false&include_all_commits=false&count_private=false)<br/>
 ![](https://streak-stats.demolab.com/?user=vgtables&theme=calm_pink&hide_border=false)<br/>
